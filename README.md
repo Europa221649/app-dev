@@ -3,8 +3,10 @@ My favorite movie series is the *Lord of the Rings* movie series because they we
 1. *The Fellowship of the Ring*
 2. *The Two Towers*
 3. *The Return of the King*
+
 These three movies were so popular that they spawned another movie series related to them detailing the past called the *The Hobbit*, which comprises of also three movies:
 1. *An Unexpected Journey*
 2. *The Desolation of Smaug*
 3. *The Battle of the Five Armies*
+
 With these movies I provided, I hope that everyone who reads this can share in the joy of watching these movies for the first time as I did.
